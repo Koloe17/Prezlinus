@@ -1,1 +1,1 @@
-# Byl jsem línej si psílat prezentaci mailem 
+# Byl jsem línej si posílat prezentaci mailem 
